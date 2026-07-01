@@ -1,6 +1,7 @@
 开源免费AI一键开📦，所有信息一键查！
+软件和教程已打包成zip文件，手机电脑均有对应版本，免费自取
 
-👉[**直接下载**](https://mypikpak.com/s/VOvXkqsiXKmZp5av02zUMI43o2)
+👉[**直接下载**](https://ziyuan.univer.se/)
 
 # AI一键开户的基本原理
 
